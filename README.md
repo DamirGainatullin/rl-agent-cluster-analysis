@@ -17,4 +17,4 @@
 
 ---
 
-Более подробную информацию можно найти в полной работе по ссылке: 
+Более подробную информацию можно найти в полной работе по ссылке: https://kpfu.ru/student_diplom/10.160.178.20_CP3BZGCMAODIRQKL9APXLP9E2GWC25QAD16LS7BSO5WL3BQRTM_Gaynatullin.pdf
